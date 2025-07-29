@@ -3,7 +3,6 @@
 
 - 📫 How to reach me **sabhya.shanti@cumminscollege.edu.in**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
